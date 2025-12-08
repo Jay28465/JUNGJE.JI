@@ -82,7 +82,7 @@
  
 - 스쿠버 다이빙 Advanced LICENSE 보유 <BR>
   - 필리핀에서 SNSI 스쿠버 다이빙 LICENSE를 취득하였습니다.
-<img width="600" height="500" alt="image" src="https://github.com/user-attachments/assets/0574ff48-6a21-47a5-b975-de7bb42e9219" />
+<img width="415" height="500" alt="image" src="https://github.com/user-attachments/assets/b1ea0110-530b-4208-8296-d7b99248e25d" />
 <img width="400" height="500" alt="image" src="https://github.com/user-attachments/assets/afcb9de0-f5c1-4af7-b2c5-f9d310fc3ddb" /> <BR>
 
   아래는 갈라파고스에서 찍었던 사진들입니다.
