@@ -39,7 +39,8 @@
   스스로의 성장을 위하여 고민을 하던 중 서울사이버대학교에서 뜻을 이룰 수 있을 거 같았기에 서울사이버대학교 진학을 선택하게 되었습니다. <BR>
 <img width="1420" height="400" alt="image" src="https://github.com/user-attachments/assets/c4af0a2a-f00b-48c8-9718-2ebc2ebe0fb7" />
 
-   부품 꿈을 안고서 입학식을 마치고 혼자 더벅 더벅 걸어가고 있던 저에게 축하한다면서 사진을 찍어주셨던 분이 계십니다. 언젠가 기회가 된다면 다시 한번 감사 인사를 드리고 싶습니다. <BR>
+   부품 꿈을 안고서 입학식을 마치고 혼자 더벅 더벅 걸어가고 있던 저에게 축하한다면서 사진을 찍어주셨던 분이 계십니다. <BR>
+  언젠가 기회가 된다면 다시 한번 감사 인사를 드리고 싶습니다. <BR>
 <img width="627" height="426" alt="image" src="https://github.com/user-attachments/assets/5181b7c0-403e-46b3-b7da-bccf33a055b3" />
 
 
