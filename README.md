@@ -78,8 +78,7 @@
 
 <img width="561" height="391" alt="image" src="https://github.com/user-attachments/assets/d2d25fb7-835f-45a5-923b-ed10867bc7d1" />
 
-- 반려동물 관리사 자격증 보유
-  - 내년 수강 신청 때는 반려동물 관리사 관련 과목도 수강해 보려고 합니다.
+- 반려동물 관리사 자격증 보유 <BR>
  
 - 스쿠버 다이빙 Advanced LICENSE 보유 <BR>
   - 필리핀에서 SNSI 스쿠버 다이빙 LICENSE를 취득하였습니다.
